@@ -106,7 +106,8 @@ shame. The Savior loves you. He wants to help you, heal you, and give you
 peace. Professional counselors, your family members, and your leaders can also
 help.
 
-See: 
+## References 
+
 - Genesis 1:27 (we are created in God’s image)
 - John 14:18 (the Savior promises comfort)
 - Philippians 4:7 (the peace of God passes understanding)

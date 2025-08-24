@@ -37,10 +37,11 @@ and the Lord. He knows your heart, and only He can be the ultimate Judge. Do
 your best to improve each day, keep God’s commandments and honor your
 covenants, and help others come closer to the Savior.
 
-See Mosiah 4:29–30 (the ways to sin are numberless, so we must watch
-ourselves); Helaman 5:12 (build your foundation on Christ); Doctrine and
-Covenants 45:57 (take the Holy Spirit for your guide); 82:15 (bind yourself to
-the Lord through covenants).
+## References 
+- Mosiah 4:29–30 (the ways to sin are numberless, so we must watch ourselves)
+- Helaman 5:12 (build your foundation on Christ)
+- D&C 45:57 (take the Holy Spirit for your guide)
+- D&C 82:15 (bind yourself to the Lord through covenants).
 
 ## How this guide is organized
 

@@ -67,7 +67,8 @@ God and His children. Sharing the gospel should not be done in a spirit of
 contention but rather with clarity, meekness, and kindness. You can be loving
 toward others even if you don’t agree with their views.
 
-See:
+## References 
+
 - Matthew 5:14–16 (let your light shine)
 - John 14:6 (Jesus is the truth)
 - 1 Peter 3:15 (be ready always to share your hope in Christ)

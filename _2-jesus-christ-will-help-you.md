@@ -62,7 +62,8 @@ now? It takes time to develop good habits and break bad ones, so don’t give up
 Turn toward Christ. His grace is sufficient. Try again. You are never alone in
 your efforts to progress. Jesus Christ is always with you.
 
-See: 
+## References 
+
 - Enos 1:6 (guilt can be swept away)
 - Mosiah 4:3 (through the Holy Ghost, God lets you know you are forgiven)
 - Mosiah 26:30 (the Savior forgives as often as we repent)

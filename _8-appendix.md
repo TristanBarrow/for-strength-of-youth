@@ -100,4 +100,3 @@ Exodus 20:3–17
 9. Thou shalt not bear false witness.
 10. Thou shalt not covet.
 
-

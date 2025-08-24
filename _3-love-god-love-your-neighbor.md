@@ -86,7 +86,8 @@ keep God’s commandments, and be a good example to your family. Build
 relationships within your ward family. Prepare now to build your own family
 founded on the teachings of Jesus Christ.
 
-See:
+## References 
+
 - Isaiah 58:3–11 (purposes of fasting)
 - Isaiah 58:13–14 (blessings of honoring the Sabbath)
 - Malachi 3:8–10 (blessings of paying tithing)

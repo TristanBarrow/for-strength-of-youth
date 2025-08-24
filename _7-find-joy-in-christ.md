@@ -1,4 +1,4 @@
-Find joy in Christ
+## Find joy in Christ
 
 Choices matter. Choices based on gospel teachings are steps that
 lead you closer to your Heavenly Father and Jesus Christ. Jesus

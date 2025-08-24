@@ -76,7 +76,8 @@ help you resist pornography and repent. Turn toward Him; turn away from
 darkness. Your bishop can help you receive strength and forgiveness through the
 Savior.
 
-See 
+## References 
+
 - Amos 5:14 (seek good)
 - Galatians 5:22–23 (the fruits of the Spirit)
 - Moroni 7:18–19 (the light of Christ)
