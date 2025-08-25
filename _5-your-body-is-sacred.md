@@ -75,12 +75,12 @@ as you live as a disciple of Jesus Christ.
 
 ## Questions and Answers
 
-What is the Lord’s standard on dress, grooming, tattoos,
-and piercings? The Lord’s standard is for you to honor the sacredness of your
-body, even when that means being different from the world. Let this truth and
-the Spirit be your guide as you make decisions— especially decisions that have
-lasting effects on your body. Be wise and faithful, and seek counsel from your
-parents and leaders.
+What is the Lord’s standard on dress, grooming, tattoos, and piercings? The
+Lord’s standard is for you to honor the sacredness of your body, even when that
+means being different from the world. Let this truth and the Spirit be your
+guide as you make decisions— especially decisions that have lasting effects on
+your body. Be wise and faithful, and seek counsel from your parents and
+leaders.
 
 How can I overcome temptations and bad habits? Heavenly Father and Jesus Christ
 have the power to help you. Fill your life with things that invite that power
